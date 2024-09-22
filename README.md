@@ -1,12 +1,11 @@
-# -
-一些被B站下架的视频
-https://www.123pan.com/s/G25KVv-IB9hv 关于温柔反戒网瘾学校的视频审核对比视频
-原简介：
+# 些被B站下架的视频
+
+1.https://www.123pan.com/s/G25KVv-IB9hv 关于温柔反戒网瘾学校的视频审核对比视频
+
+2.原简介：
 本视频投稿的视频是https://space.bilibili.com/265059948的视频（先已下架）
 翻译：Rikka Takanashi 已经同意，证明如下
-
-https://github.com/user-attachments/assets/51f12443-367d-4a18-8035-d8a68fea3c9c
-
+证明：https://github.com/user-attachments/assets/51f12443-367d-4a18-8035-d8a68fea3c9c
 相关网站：抖音:https://www.douyin.com/user/self?from_tab_name=main&modal_id=7417105147509132553
 快手：https://www.kuaishou.com/short-video/3xqxuf4fa85pe9g?utm_source=video&utm_medium=video&utm_campaign=video
 QQ小世界：https://xsj.qq.com/video?feed_key=CgASLz9mPUJfaDRjZGNlZTY2ZjRlZTBhMDBjamdTY2o4VGQzQU5kMDBYNWMmdD0wJnU9GAA&childmode=0
