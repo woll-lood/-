@@ -8,7 +8,7 @@
 
 **原简介：**
 
-本视频投稿的视频是 [https://space.bilibili.com/265059948](https://space.bilibili.com/265059948) 的视频（先已下架）
+本视频投稿的视频是 [https://space.bilibili.com/265059948](https://space.bilibili.com/265059948) 的视频（已下架）
 
 **翻译：** Rikka Takanashi 已经同意，证明如下  
 **证明：** [https://github.com/user-attachments/assets/51f12443-367d-4a18-8035-d8a68fea3c9c](https://github.com/user-attachments/assets/51f12443-367d-4a18-8035-d8a68fea3c9c)
