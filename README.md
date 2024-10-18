@@ -1,6 +1,6 @@
 <div align="center">
 
-# 一些些被B站下架的视频
+# 一些被B站下架的视频
 
 [链接](https://cloud.189.cn/t/aim67riqIRFf) 关于我的视频【B站审核现状】未通过审核（访问码：n6hk）
 
