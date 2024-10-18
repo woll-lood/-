@@ -2,7 +2,9 @@
 
 # 一些被B站下架的视频
 
-[链接](https://cloud.189.cn/t/aim67riqIRFf) 关于我的视频【B站审核现状】未通过审核（访问码：n6hk）
+[链接](https://cloud.189.cn/t/aim67riqIRFf) 关于我的视频 B站审核现状 未通过审核（访问码：n6hk）
+[链接](https://cloud.189.cn/t/NbEvyaame6fu) 关于我的视频 家庭暴力记录【录音】未通过审核（访问码：d31y）
+
 
 [其他下架视频](https://cloud.189.cn/t/jmaUJn7VVrey) 访问码：pzf9
 
@@ -26,7 +28,7 @@
 
 ---
 
-我的视频【B站审核现状】开源，多多分享。
+此项目中我的视频开源，多多分享。
 项目中的其他下架视频版权归原作者所有，但依旧可以宣扬但禁止盈利后果自负
 
 联系方式：QQ1461274914 邮箱：mhyhhhzzz@gmail.com
