@@ -18,13 +18,15 @@
 
 **相关网站：**
 
-- 抖音: [https://www.douyin.com/user/self?from_tab_name=main&modal_id=7417105147509132553](https://www.douyin.com/user/self?from_tab_name=main&modal_id=7417105147509132553)
-- 快手: [https://www.kuaishou.com/short-video/3xqxuf4fa85pe9g?utm_source=video&utm_medium=video&utm_campaign=video](https://www.kuaishou.com/short-video/3xqxuf4fa85pe9g?utm_source=video&utm_medium=video&utm_campaign=video)
-- QQ小世界: [https://xsj.qq.com/video?feed_key=CgASLz9mPUJfaDRjZGNlZTY2ZjRlZTBhMDBjamdTY2o4VGQzQU5kMDBYNWMmdD0wJnU9GAA&childmode=0](https://xsj.qq.com/video?feed_key=CgASLz9mPUJfaDRjZGNlZTY2ZjRlZTBhMDBjamdTY2o4VGQzQU5kMDBYNWMmdD0wJnU9GAA&childmode=0)
-- 小红书: [https://www.xiaohongshu.com/explore/66eedc7d000000000c01926f?xsec_token=GB_EOeHNuXIaIr9nl0XBWBB2KJz3D1fCMe-XS8T2nIB5M%3D&xsec_source=pc_creatormng](https://www.xiaohongshu.com/explore/66eedc7d000000000c01926f?xsec_token=GB_EOeHNuXIaIr9nl0XBWBB2KJz3D1fCMe-XS8T2nIB5M%3D&xsec_source=pc_creatormng)
+- [抖音:]（https://www.douyin.com/user/self?from_tab_name=main&modal_id=7417105147509132553）
+- [快手:](https://www.kuaishou.com/short-video/3xqxuf4fa85pe9g?utm_source=video&utm_medium=video&utm_campaign=video)
+- [QQ小世界:](https://xsj.qq.com/video?feed_key=CgASLz9mPUJfaDRjZGNlZTY2ZjRlZTBhMDBjamdTY2o4VGQzQU5kMDBYNWMmdD0wJnU9GAA&childmode=0)
+- [小红书:](https://www.xiaohongshu.com/explore/66eedc7d000000000c01926f?xsec_token=GB_EOeHNuXIaIr9nl0XBWBB2KJz3D1fCMe-XS8T2nIB5M%3D&xsec_source=pc_creatormng)
 
 ---
 
 本视频开源，多多分享。
+联系方式：QQ1461274914
+
 
 </div>
