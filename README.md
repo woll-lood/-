@@ -17,9 +17,9 @@
 **证明：** [https://github.com/user-attachments/assets/51f12443-367d-4a18-8035-d8a68fea3c9c](https://github.com/user-attachments/assets/51f12443-367d-4a18-8035-d8a68fea3c9c)
 
 **相关网站(我的账号）：**
-  [哔哩哔哩](https://space.bilibili.com/586690045)
-  [西瓜视频](https://www.ixigua.com/home/102430143803?list_entrance=studio)
-- [抖音]（https://www.douyin.com/user/self?from_tab_name=main&modal_id=7417105147509132553）
+- [哔哩哔哩](https://space.bilibili.com/586690045)
+- [西瓜视频](https://www.ixigua.com/home/102430143803?list_entrance=studio)
+- [抖音]（https://www.douyin.com/user/MS4wLjABAAAA1RnZJC2aJx8Ipv_AwITBKGHoPOW5luR_WnnStAw2HdWwpiYSSk59QyhDv78wzqbn?from_tab_name=main&vid=7417105147509132553)
 - [快手](https://www.kuaishou.com/short-video/3xqxuf4fa85pe9g?utm_source=video&utm_medium=video&utm_campaign=video)
 - [QQ小世界](https://xsj.qq.com/video?feed_key=CgASLz9mPUJfaDRjZGNlZTY2ZjRlZTBhMDBjamdTY2o4VGQzQU5kMDBYNWMmdD0wJnU9GAA&childmode=0)
 - [小红书](https://www.xiaohongshu.com/explore/66eedc7d000000000c01926f?xsec_token=GB_EOeHNuXIaIr9nl0XBWBB2KJz3D1fCMe-XS8T2nIB5M%3D&xsec_source=pc_creatormng)
