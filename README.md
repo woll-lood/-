@@ -4,7 +4,7 @@
 
 [链接](https://www.123pan.com/s/G25KVv-IB9hv) 关于温柔反戒网瘾学校的视频审核对比视频
 
-[链接]([https://cloud.189.cn/t/jmaUJn7VVrey) 访问码：pzf9
+[链接](https://cloud.189.cn/t/jmaUJn7VVrey) 访问码：pzf9
 
 
 ---
