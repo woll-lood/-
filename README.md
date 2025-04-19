@@ -17,7 +17,8 @@ An Overview of China's Teenager Concentration Camps. And Why We are Declearing W
 **证明：** [https://github.com/user-attachments/assets/51f12443-367d-4a18-8035-d8a68fea3c9c](https://github.com/user-attachments/assets/51f12443-367d-4a18-8035-d8a68fea3c9c)
 
 **相关网站(我的账号）：**
-- [哔哩哔哩](https://space.bilibili.com/586690045)
+- [哔哩哔哩](https://space.bilibili.com/586690045)【已永封】详情(https://www.bilibili.com/opus/1006364408602951681)
+  (https://space.bilibili.com/3546387998313139)
 - [西瓜视频](https://www.ixigua.com/home/102430143803?list_entrance=studio)
 - [抖音](https://www.douyin.com/user/MS4wLjABAAAA1RnZJC2aJx8Ipv_AwITBKGHoPOW5luR_WnnStAw2HdWwpiYSSk59QyhDv78wzqbn?from_tab_name=main&vid=7417105147509132553)
 - [快手](https://www.kuaishou.com/profile/3xycrhzfgieapjk)
